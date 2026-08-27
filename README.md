@@ -1,2 +1,1 @@
-# MojaStrona
-file:///Users/franciszekmalec/Pictures/Videos/folder%20bez%20nazwy/YouTube%20Podcast%20&%20LIVE/Zalecamy%20użycie%20obrazu%20o%20wielkości%20150%20x%20150%20pikseli.%20Użyj%20pliku%20PNG,%20GIF%20(ale%20nie%20animowanego),%20BMP%20lub%20JPEG%20o%20maksymalnym%20rozmiarze%201%20MB.%20-,%20w%20proporcjach%201_1%20w%20stylu%20tego%20obrazu/MojaStrona/index.html
+# MojaStrona file:///Users/franciszekmalec/Pictures/Videos/folder%20bez%20nazwy/YouTube%20Podcast%20&%20LIVE/Zalecamy%20użycie%20obrazu%20o%20wielkości%20150%20x%20150%20pikseli.%20Użyj%20pliku%20PNG,%20GIF%20(ale%20nie%20animowanego),%20BMP%20lub%20JPEG%20o%20maksymalnym%20rozmiarze%201%20MB.%20-,%20w%20proporcjach%201_1%20w%20stylu%20tego%20obrazu/MojaStrona/index.html
