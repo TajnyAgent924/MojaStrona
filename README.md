@@ -10,7 +10,7 @@ Na tym kanale znajdziesz informacje na temat moich podróży po świecie.
 Dokładam wszelkich starań żeby nagrać, zmontować, stworzyć i wstawić filmy na kanał. 
 Tworzę wartościowe i dopracowane materiały dla widzów. Każdy film to kolejny krok w rozwoju kanału oraz motywacja do dalszego tworzenia. Stale rozwijam swoje umiejętności i dbam o jakość treści. Mam nadzieję, że znajdziesz tutaj coś dla siebie i zostaniesz na dłużej. Jeśli podobają Ci się treści na moim kanale, będzie mi bardzo miło, jeśli zostawisz subskrypcję 🔔 i łapkę w górę 👍. Każda aktywność widzów pomaga mi rozwijać kanał oraz tworzyć kolejne materiały. Kanał ten to połączenie pasji, chęci, emocji i kulturalnego spojrzenia na świat. Wrzucam treści KRMIXART⭐️
 
-Po przeczytaniu jeśli byś się zastanawiał co to jest KRMIXART, to są zmiksowane treści Kulturalno-Rozrywkowe jako Sztuka
+Po przeczytaniu jeśli byś się zastanawiał co to jest KRMIXART, to są zmiksowane treści Kulturalno-Rozrywkowe jako Sztuka 
 🚀 Co znajdziesz na moim kanale YouTube?
 
 Podróże i filmy z pięknych wieczorów.
